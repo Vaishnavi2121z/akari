@@ -1,4 +1,4 @@
-﻿## Akari APT DM-6A Electric Drill Machine – Powerful, Reliable, and Built for Everyday Use
+﻿# Akari APT DM-6A Electric Drill Machine – Powerful, Reliable, and Built for Everyday Use
 
 The **Akari APT DM-6A Electric Drill Machine** is a dependable and efficient tool designed for both home users and professionals who need consistent performance for drilling and light-duty tasks. Built with durability and ease of use in mind, this electric drill machine is ideal for workshops, household repairs, furniture installation, and general maintenance work.
 
